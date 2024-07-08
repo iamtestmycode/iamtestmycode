@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @iamtestmycode
+- 👀 I’m interested in Py C++ C# HTML
+- 🌱 I’m currently learning py
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me cant 
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i just a NERD
